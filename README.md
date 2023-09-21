@@ -1,4 +1,4 @@
-# MY NFT PROFILES
+# MY NFT PROFILE
 
 - 0xvanica (1).jpg
 - 0xvanica (2).jpg
